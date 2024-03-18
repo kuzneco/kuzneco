@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on user
 - 📫 How to reach me mail
 - 😄 Pronouns: lol
-- ⚡ Fun fact: lol + lol + lol +lol
+- ⚡ Fun fact: lol + lol + lol +lol+
 
 <!---
 kuzneco/kuzneco is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
