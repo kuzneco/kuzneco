@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning tort
 - 💞️ I’m looking to collaborate on user
 - 📫 How to reach me mail
-- 😄 Pronouns: lol
+- 😄 Pronouns: lol+
 - ⚡ Fun fact: lol
 
 <!---
