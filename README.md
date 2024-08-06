@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kuzneco
+erds- 👋 Hi, I’m @kuzneco
 - 👀 I’m interested in cinema
 - 🌱 I’m currently learning tort
 - 💞️ I’m looking to collaborate on user
@@ -38,7 +38,7 @@ rherhuyrehg
 e453y34y
 regeyhyg
 453yter
-ytkty
+ytktyhgre
 eryeu5y
 redhrtu
 fdhthj
