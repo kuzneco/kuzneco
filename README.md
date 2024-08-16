@@ -4,7 +4,7 @@ erds- 👋 Hi, I’m @kuzneco
 - 💞️ I’m looking to collaborate on user
 - 📫 How to reach me mail
 - 😄 Pronouns: 
-- ⚡ Fun fact: l
+- ⚡ Fun fact:
 
 
 
