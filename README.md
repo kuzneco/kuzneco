@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on user
 - 📫 How to reach me mail
 - 😄 Pronouns: 
-- ⚡ Fun fact:++
+- ⚡ Fun fact:+++
 
 
 
